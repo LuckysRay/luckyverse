@@ -1,1 +1,1 @@
-# https://zehualei.github.io
+# https://luckysray.github.io/luckyverse/
